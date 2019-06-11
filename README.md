@@ -1,5 +1,3 @@
 # prueba
 
-eres muuuu tonto amiguito
-
-No me cuentas nada, apañero
+Te lo voy a contar, te lo mando por push, estate preparado
